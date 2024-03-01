@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MDaaaaaaaart
+- 👋 Hi, I’m @aaaaaaaartmd
 - 👀 I’m interested in art and dance.
 - 🌱 I’m currently learning visual art and digital design
 - 📫 To reach me follow me on instagram: @aaaaaaaartmd
